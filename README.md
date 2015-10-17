@@ -28,6 +28,13 @@ whom are asigned to protect one another legally.
 
 ### Law Prescription
 * Prescription can be given by phone, e-mail, or in person at any time the educator comes into contact with the physician involved. This is a simple taskforce order taken on by our finest dr. to help update local CA-state clinical staff members on new C2 platform requirements for VA patients involved in protective status of preservation.
-* Preserving the life of an individual:
-This is something under a sensitive area of protection. The gray matter of this area.  
 
+* Preserving the life of an individual:
+This is something under a sensitive area of protection. The gray matter of this area is dangerous indeed, and this is where PDR Network Staff of Naval Educators and Federal American Coders have been enstated to step-up in protection of precious U.S. Citizens' lives. It has been brought to our attention that we are dealing with a serious pandemic of poachers that are seeking to bleed insurance benefits out of all covered U.S. persons with card coverages of all types. Due to the fact that this is highly unethical, and now, extremely illegal according to judicial court of Congress and their Senator of independent party. Researchers of all likes are now gathering specific sets of data, and one veteran owned business founder has sparked this broadened, endless fuel of research efforts in the name of empathetic value restoration within physicians practices; we have now fully enstated the leader as MCP_Independent [VOB] Clinical Research Company of Educational Training and Data.
+
+* These efforts are at the fast-tracked pace 
+
+# MCP_Independent Veteran Owned Business "iPharma"
+* 
+
+### Specialty Pharmacy Services By Your Walgreens' [IL] Chain
