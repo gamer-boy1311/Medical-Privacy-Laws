@@ -34,7 +34,7 @@ This is something under a sensitive area of protection. The gray matter of this 
 
 * These efforts are at the fast-tracked pace 
 
-# MCP_Independent Veteran Owned Business "iPharma"
+## MCP_Independent Veteran Owned Business of Naval Company
 * 
 
-### Specialty Pharmacy Services By Your Walgreens' [IL] Chain
+### Specialty Pharmacy Services By Your Walgreens' Co.
