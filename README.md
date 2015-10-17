@@ -13,10 +13,23 @@ A briefing of judicial protective laws armouring the new prescriber of Walgreens
 # The Federal Government Case Worker:
 
 
+# Immature Provider Actions
+
+## Legal Penalty for Malpractice-Based Acts
+
+### Illegal Stereotyping of Patients by Primary Care Provider:
+* It is now fully illegal to stereotype any patients of the U.S. homeland. This falls into a diverse array of options that are listed by our penalty staffers, that are considered to be stereotypical actions of or against a patient, and this list will be sent out within the 3 month time-frame period as mentioned before. Here is the only place you will be able to view a full list of illegal stereotyping of patients in all.
+
+### Bias Action of Stereotypers
+* You are no longer allowed to drug test a patient without premission from a federal official or a DEA officer, after providing written or typed request with probable cause; no e-mail requests will be accepted outside of our health educator and prescriber, and this is the only contact who can grant you acceptance of a drug test kit, to test a patient after reviewing your request by e-mail and making phone-call contact with you on an appointed date.
+* You will no longer be able to adjust the limit of pain medication in an attempt to lower the amount prescribed to a patient without the request of a higher, specifically authorized, and trained specialist of pain management, or Doctor Lacey Pedersen herself who can approve your patient's need to be lowered down slowly on each dose of pain medication until the patient is ready to end the pain medication treatment in all.
+--- This is a personal choice of the patient to begin waning themselves off of a chronic pain medication, and is of no place of a primary care physician to decide the quality of life of a patient's needed basis for pain medication ingestion. This is crutial for purpose of the patients well being, overall. When a patient is ready or no longer in need of the aid of a prescribed pain medication, this can be openly discussed by or with their primary caregiver at the monthly or bi-monthly visit, but this is not advised for private discussion without a prescribing nurse of staff readily available to assist and or oversee that particular session of the conversation.
 
 ## Contact Privacy
 * Privacy is always a safety concern when working with a master-chief of health education. This is a deep concern of the federal government staff
 whom are asigned to protect one another legally.
+* Due to the status we uphold here in our Naval Federal Government, our personel is the basis for getting the crisis handled and resolved as quickly and securely as possible; so we take immense pride in protecting all of our related officials. This is where privacy takes a turn on an immature "business" based clinic setting, whom abuses the name of medicine by lacking in ethic of actual legal privacy law enforcement, not to mention acting as a place of business instead of a true service providing residence. These are residences because they house persons in need of health care, even if its implied that temporary service is a clinic-basis of care, this is inadequate by judicial courts eye of law provision to the public. The court finds fault within the hollow thought process that becomes stereotypically melded to a primary care clinic, and any clinical residence outside of a hospital of emergency providers.
+This comes into context when you think of the "care" in "primary caregiver," and this will boost the need for services actually provided by a clinic. Upgrades will come with the next 3 months of service and continue on into 2018, after this we hope to have the problem under complete control; or nearing resolvement. 
 
 ### Involvement With a Federal Health Educator
 * Our lead of staffers is a highly trained prescriber of medicinal grade law for physical repair, and holds some of the highest degrees of service on volunteer basis accredidation for all walks of life and health. This achiever is a non-profiteer, and has been assigned to the company for investigational obligation of work in the field of research to aid the emergency crisis our VAD has been facing this past year of 2015, and has legitimate accredidational service hours invested into ACP_Advisor Net which is an online web-based service site that offers help to veterans seeking aid in times of hardship with all diverse ailments, from needing work all the way to homeless displacement, and even seeking help with pension-planning for retirement.
