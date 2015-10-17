@@ -1,9 +1,13 @@
 # PDR Network
+* If you don't know who or what PDR Network is, or what services they offer to the public free of charge, an educator will be assigned to you immediately among the rest of the directory we possess within our files. The law is upgrading daily, and the laws of medicinal ruling changes and upgrades with the daily grind. General Services Agency has a group of specialty web-law designers refered to as 18F, and these are grouped into PDR Network, but stand independent as "American Coders." These people will be working with the PDR Network Pharmacist, the health educator who will contact you, in order to assure your clinic has a proper online webpage for online contact outside of a "business listing" because a clinic is not a business, it is a service. 
 
-### Physician's Reference Desk
+## Physician's Reference Desk
 * Collaboration with the Walgreens' Dr. of pain medicine, and patient mental health status evaluation.
 
-## Medical-Privacy-Laws
+### Rx Relief Pharmacist: Master Chief of Education in Healthy Patient Law
+* Here at PDR Network, we are a service provider of law for protecting the health of all U.S. citizens to the fullest of our potential. If a patient is experiencing abuse, neglect, or feels the health services provided to them by a specific provider is not of satisfactory in full, this then becomes a legal matter of which we abide by our means of motto to step in and correct any physicians who fall out of line. These services will subject any and all malpractice-driven physicians to a law that will be sentencing the MD to intensive training sessions with an assigned educator of health. Preferebly our main educator of medicinal law, Doctor Lacey Pedersen or MD Mark Pedersen.  
+
+# Medical-Privacy-Laws
 A briefing of judicial protective laws armouring the new prescriber of Walgreens' Specialty Pharmacy Co.
 
 # The Federal Government Case Worker:
